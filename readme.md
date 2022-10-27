@@ -12,7 +12,7 @@
     1.8.  Gebruik OOC alleen voor technische problemen.
     1.9.  De stad heet Sluisdijk en niet Los Santos  
 
-## 2.  Powergaming/Fail RP » [A/B]
+## 2.  Powergaming/Fail RP »
     2.1.  Het constant aangeven dat je geraakt bent in je vest wordt gezien als RP dodging.
     2.2.  Van hoge bruggen afspringen en vervolgens doorlopen.
     2.3.  Nadat je bent neergestoken/neergeschoten verder rennen en/of gelijk wraak erop nemen terwijl je zorg nodig hebt.
